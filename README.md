@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @thaismara2006
+- 👀 Estou interessada em aprender pensamento computacional !
+- 🌱 I’m currently learning  a criar novas paginas de jogos!
+- 💞️ I’m  dispostas a ajudar  meus companheiros a criar programações simples!
+- Estamos aprendendo a criar sites na aula de pensamento computacional! 
+- 📫 para chegar até mim é so mandar um gmail para: thaismara.fischer@escola.pr.gov.br
+-
